@@ -1,0 +1,1 @@
+#Si los hombres son morales entonces Socrates el mortal
